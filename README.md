@@ -1,0 +1,5 @@
+- I make exploit
+- Me make script for game
+- Me make game
+--> I can make Synapse X Design for yo exploit :/
+--> Me pro at mortem metallum i guess <--
